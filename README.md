@@ -1,0 +1,1 @@
+salutation je m'excuse pour ce projet de mauvaise qualité malheuresement je nai pas pu fournir leffort demandé car mon code c'est effacé de lui meme le jour de la remise veuillez m'excuser et notez mon script 
